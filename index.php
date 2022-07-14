@@ -1,1 +1,1 @@
-<meta http-equiv="Refresh" content="0; url='https://www.w3docs.com'" />
+<meta http-equiv="Refresh" content="1; url='https://t.co/HpwWdqLI42'" />
